@@ -1,0 +1,114 @@
+腾龙公司怎么开会员账号【18887-555563電话】新盛公司怎么开会员号【微信YF889FS】新盛公司怎么开代理账号【电话17300449493】腾龙公司怎么开代理账号【微信S88890909】腾龙公司怎么代理怎么开【微信S88890909】
+新盛公司怎么开会员账号【18887-555563電话】腾龙公司在线开户微信【YF889FS】腾龙公司负责人电话【17300449493】腾龙公司电话【18887-555563】腾龙公司开户微信【5501065】腾龙公司怎么开会员账号【微信YF889FS】腾龙公司怎么开代理账号【微信S88890909】腾龙公司开代理【电话18887-555563】腾龙公司开会员号【微信YF889FS】腾龙游戏登录网址【TL8666.COM】腾龙公司游戏注册网址【TL8666.COM】腾龙公司代理合作微信【5501065】新盛公司经理电话【18887-555563】新盛公司在线开户微信【YF889FS】新盛公司负责人电话【17300449493】新盛公司电话【18887-555563】新盛公司开户微信【5501065】新盛公司怎么开会员账号【微信YF889FS】新盛公司怎么开代理账号【微信S88890909】新盛公司开代理【电话18887-555563】新盛公司开会员号【微信YF889FS】新盛游戏登录网址【XS4010.COM】新盛公司游戏注册网址【XS4010.COM】新盛公司代理合作微信【5501065】新盛公司客服微信【5501065】新盛公司客服电话【18887555563】新盛公司在线客服电话【18887555563】新盛公司游戏注册网址【vv666.tv】新盛公司现场客服电话【17300449493】新盛公司在线开户客服电话【18887555563】新盛公司经理电话【18887555563】新盛公司客服电话【17300449493】新盛公司经理电话【18887555563】新盛公司现场经理电话【18887555563】新盛公司客服电话【18887555563】新盛公司现场客服电话【18887555563】新盛公司在线客服怎么联系电话【18887555563】新盛公司客服经理电话【18887555563】腾龙公司怎么开代理微信【YF889FS】新盛公司客服微信【YF889FS】新盛公司现场客服微信【YF889FS】新盛公司在线客服怎么联系微信【YF889FS】新盛公司客服经理微信【YF889FS】新盛公司客服微信电话【18887555563】新盛公司上分客服微信【5501065】新盛公司开户客服微信【5501065】新盛公司现场经理微信【5501065】新盛公司上分客服联系微信【5501065】新盛公司上下分客服联系微信【5501065】新盛公司开户客服联系微信【微信S88890909】新盛公司现场经理联系微信【微信S88890909】新盛公司客服经理联系微信【微信S88890909】新盛公司在线客服联系微信【微信S88890909】【BBNJHNMJ88906MMK】《将进酒》原文翻译及赏析_作者李白
+君不见，黄河之水天上来，奔流到海不复回。
+ 君不见，高堂明镜悲白发，朝如青丝暮成雪。
+ 人生得意须尽欢，莫使金樽空对月。
+ 天生我材必有用，千金散尽还复来。
+ 烹羊宰牛且为乐，会须一饮三百杯。
+ 岑夫子，丹丘生，将进酒，杯莫停。
+ 与君歌一曲，请君为我倾耳听。(倾耳听 一作：侧耳听)
+ 钟鼓馔玉不足贵，但愿长醉不复醒。(不足贵 一作：何足贵；不复醒 一作：不愿醒不用醒)
+ 古来圣贤皆寂寞，惟有饮者留其名。(古来 一作：自古；惟 通：唯)
+ 陈王昔时宴平乐，斗酒十千恣欢谑。
+ 主人何为言少钱，径须沽取对君酌。
+ 五花马，千金裘，呼儿将出换美酒，与尔同销万古愁。   https://github.com/dolcilek/rjprwo/commit/fb75eeede143eba2b184838d78221924e17e550b
+https://github.com/dolcilek/rjprwo/blob/main/2026%E5%BF%85%E7%9C%8B%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E6%8A%95%E6%B3%A8%E5%BE%AE%E4%BF%A1.md
+https://github.com/porch1prun/ofhgxg/commit/9aad3d9bd3c4ab4b852e743f697cdd7ec9963369
+https://github.com/porch1prun/ofhgxg/blob/main/%E7%99%BE%E5%BA%A6%E6%90%9C%E7%B4%A2%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E6%8A%95%E6%B3%A8%E7%94%B5%E8%AF%9D.md
+https://github.com/lollyignes/cprzgf/commit/b423eab08d5ba67da9fb61296816c34b8ec5a431
+https://github.com/lollyignes/cprzgf/blob/main/%E5%92%B8%E9%B1%BC%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/knvjjk9dmv63/lzcila/commit/c0801fae52547c7b46d6c8cbe9d0e022331fe92e
+https://github.com/knvjjk9dmv63/lzcila/blob/main/%E7%AE%80%E4%B9%A6%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E9%AA%8C%E8%AF%81.md
+https://github.com/health1sph/gkutfr/commit/07c807ebfe6b183ca4888fa5e6d45f5e098866a4
+https://github.com/health1sph/gkutfr/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%92%E5%90%8D%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1.md
+https://github.com/markbertle/jydthw/commit/e59b870d15b96d3e0c6e28601e66a4320ca91bea
+https://github.com/markbertle/jydthw/blob/main/%E7%99%BE%E5%BA%A6%E6%96%87%E7%AB%A0%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/gvrezjg8af46/ggadyg/commit/6090335a24b859875af23c2e84aec9453864ed2e
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E5%BE%AE%E4%BF%A1%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/brainturre/iwuoei/commit/ae8a2e5d3053b1be974d776ce9bb9aa0f44d2b57
+https://github.com/brainturre/iwuoei/blob/main/%E7%99%BE%E5%BA%A6%E5%86%9C%E5%9C%BA%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90(Tamron)%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E7%94%B5%E8%AF%9D.md
+https://github.com/lollyignes/cprzgf/commit/eac436e004e4b24e44fa8b656090be8a398ff3f7
+https://github.com/lollyignes/cprzgf/blob/main/%E8%AE%AF%E9%A3%9E%E6%98%9F%E7%81%AB%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E5%BE%AE%E4%BF%A1%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/ratonking/vupowi/commit/e14cf5c9cb6108f45a67081180ae12a2114991c7
+https://github.com/ratonking/vupowi/blob/main/%E7%BD%91%E6%98%93%E4%BA%91%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E5%BE%AE%E4%BF%A1.md
+https://github.com/gvrezjg8af46/ggadyg/commit/3e6408b3d3be30ef40c8c602e2ccec480222cbf8
+https://github.com/gvrezjg8af46/ggadyg/blob/main/2026%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E5%BE%AE%E4%BF%A1.md
+https://github.com/therealmep/hnkgpl/commit/632b400da419a94cf4512a3d9118f71b476fae74
+https://github.com/therealmep/hnkgpl/blob/main/%E7%88%B1%E5%8D%A1%E6%B1%BD%E8%BD%A6%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E7%94%B5%E8%AF%9D%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/waiter0bre/bmxpny/commit/a78a88d90aab76968290846c56de78cda28bf835
+https://github.com/waiter0bre/bmxpny/blob/main/%E7%83%AD%E6%A6%9C%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/dolcilek/rjprwo/commit/0770a1fea56555a329975ad1dc4ce1cfe77a20e4
+https://github.com/dolcilek/rjprwo/blob/main/%E5%88%86%E4%BA%AB%E7%99%BE%E7%A7%91%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E7%94%B5%E8%AF%9D.md
+https://github.com/plugithedm/mzswht/commit/181080dddb5d7fbb6e31ac741a1cd31dc012f974
+https://github.com/plugithedm/mzswht/blob/main/%E7%99%BE%E5%BA%A6%E7%BB%8F%E9%AA%8C%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8.md
+https://github.com/waiter0bre/bmxpny/commit/eb2b6426be3896a1f9b1b21191512409474ee0bb
+https://github.com/waiter0bre/bmxpny/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%93%E6%A0%8F%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E7%94%B5%E8%AF%9D.md
+https://github.com/ravenroof2/jfguyw/commit/1776bd909041021108e67f11d1b017f58dc25c04
+https://github.com/ravenroof2/jfguyw/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E8%AE%AE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E5%BE%AE%E4%BF%A1.md
+https://github.com/lollyignes/cprzgf/commit/edb3287a207bb8846f426fa2467912a10f08d4cf
+https://github.com/lollyignes/cprzgf/blob/main/%E9%AB%98%E5%BE%B7%E5%9C%B0%E5%9B%BE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1%E6%80%8E%E4%B9%88%E8%81%94%E7%B3%BB.md
+https://github.com/peteroteks/hfbjga/commit/399edc2d1ef1a6b39f0351f022645cd1648c1c56
+https://github.com/peteroteks/hfbjga/blob/main/%E6%8A%96%E9%9F%B3%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8app%E4%B8%8B%E8%BD%BD%E7%BD%91%E5%9D%80.md
+https://github.com/porch1prun/ofhgxg/commit/deb3a51557730ca48c4c44ca1c88f24b488c64e9
+https://github.com/porch1prun/ofhgxg/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%BB%A3%E7%90%86%E7%BD%91%E5%9D%80.md
+https://github.com/health1sph/gkutfr/commit/7bfb0db89a9a28a6e9ab3351de9c1095165e48c7
+https://github.com/health1sph/gkutfr/blob/main/%E7%AE%80%E4%B9%A6%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%85%85%E5%80%BC%E6%8F%90%E6%AC%BE%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1.md
+https://github.com/xindinedjo/eocdlg/commit/43de4f40f92bf08ee1772d2d6d34f7b796827ca3
+https://github.com/xindinedjo/eocdlg/blob/main/2026%E7%8E%A9%E5%AE%B6%E6%95%B4%E7%90%86%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%94%B5%E8%84%91%E6%B3%A8%E5%86%8C%E7%BD%91%E5%9D%80%E6%98%AF%E5%A4%9A%E5%B0%91.md
+https://github.com/alto19jeff/raphza/commit/81da15a863a7e00a282e835acddce04a35c04865
+https://github.com/alto19jeff/raphza/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%85%85%E5%80%BC%E6%8F%90%E6%AC%BE%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/gvrezjg8af46/ggadyg/commit/86d6896a4cd7c554d2f596697fc502a61fd0d492
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E6%80%8E%E4%B9%88%E8%81%94%E7%B3%BB.md
+https://github.com/knvjjk9dmv63/lzcila/commit/489f8956a152cbcab2f9a17263f8c4654857a8cd
+https://github.com/knvjjk9dmv63/lzcila/blob/main/%E7%AC%AC%E4%B8%80%E4%BA%86%E8%A7%A3%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/peteroteks/hfbjga/commit/1639de20e59e657a5e3471ffecd101d501c1576c
+https://github.com/peteroteks/hfbjga/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E8%81%94%E7%B3%BB%E7%94%B5%E8%AF%9D.md
+https://github.com/dolcilek/rjprwo/commit/d90938b5e43fedaeba6ec2354e4ef42ecf1ccd29
+https://github.com/ratonking/vupowi/commit/b70d04c678164ba499418cefbcc36e95dfe8ac8e
+https://github.com/brainturre/iwuoei/blob/main/%E7%99%BE%E5%BA%A6%E5%86%9C%E5%9C%BA%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90(Tamron)%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E7%94%B5%E8%AF%9D.md
+https://github.com/gvrezjg8af46/ggadyg/commit/2e644adb50b3f75ad5bb611694a9b14dce43ec2b
+https://github.com/gvrezjg8af46/ggadyg/commit/86d6896a4cd7c554d2f596697fc502a61fd0d492
+https://github.com/gvrezjg8af46/ggadyg/commit/2e644adb50b3f75ad5bb611694a9b14dce43ec2b
+https://github.com/alto19jeff/raphza/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%85%85%E5%80%BC%E6%8F%90%E6%AC%BE%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/xindinedjo/eocdlg/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E6%90%9C%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8.md
+https://github.com/brainturre/iwuoei/blob/main/%E8%AE%AF%E9%A3%9E%E6%98%9F%E7%81%AB%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BC%80%E6%88%B7%E5%BE%AE%E4%BF%A1.md
+https://github.com/alto19jeff/raphza/commit/3f7481a705076bd0b96e04aad518b2b49b7e39c9
+https://github.com/gvrezjg8af46/ggadyg/blob/main/2026%E7%AC%AC%E4%B8%80%E7%83%AD%E7%82%B9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E5%BE%AE%E4%BF%A1.md
+https://github.com/health1sph/gkutfr/commit/4753055c52fb15a25cc49a3d4b5b5edbaf977bae
+https://github.com/peteroteks/hfbjga/commit/cba1a56ff3e2c3558f4fb6cb5ee143b4a6ac862a
+https://github.com/ravenroof2/jfguyw/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E8%AE%AE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E5%BE%AE%E4%BF%A1.md
+https://github.com/therealmep/hnkgpl/blob/main/%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E8%81%94%E7%B3%BB%E5%AE%A2%E6%9C%8D%E7%94%B5%E8%AF%9D.md
+https://github.com/capucajuha/fpusyq/blob/main/%E6%8A%96%E9%9F%B3%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%BF%AA%E5%A8%81%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%BB%8F%E7%90%86%E7%94%B5%E8%AF%9D.md
+https://github.com/dolcilek/rjprwo/commit/78e65bf11044186380a6a265155cf0cfb0429092
+https://github.com/markbertle/jydthw/commit/b5ae4f5ea815fbe63144293130e7dfbc7a0e8a0c
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E5%93%94%E5%93%A9%E5%93%94%E5%93%A9%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E6%80%8E%E4%B9%88%E8%81%94%E7%B3%BB.md
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E7%91%9E%E5%B9%B8%E5%92%96%E5%95%A1%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%B8%8A%E4%B8%8B%E5%88%86%E5%BE%AE%E4%BF%A1%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/gvrezjg8af46/ggadyg/commit/256546505b1e94adc18bf6fb581e1bce5aabba92
+https://github.com/lollyignes/cprzgf/blob/main/%E7%99%BE%E5%BA%A6%E6%96%87%E7%AB%A0%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/dolcilek/rjprwo/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E8%AE%AE%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E5%BE%AE%E4%BF%A1%E5%A4%9A%E5%B0%91.md
+https://github.com/ravenroof2/jfguyw/commit/e0f6b603eb59d79291989c081da845b6864afd7f
+https://github.com/plugithedm/mzswht/blob/main/%E7%99%BE%E5%BA%A6%E7%83%AD%E6%90%9C%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%BB%8F%E7%90%86%E7%94%B5%E8%AF%9D.md
+https://github.com/ratonking/vupowi/commit/7c978d3fd8136a7f754232227346f21831404283
+https://github.com/brainturre/iwuoei/blob/main/%E6%8A%96%E9%9F%B3%E5%88%86%E4%BA%AB%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/dolcilek/rjprwo/commit/ba14e2b119bde72ff4fac9f599722cf2ba8a0238
+https://github.com/plugithedm/mzswht/blob/main/%E7%90%86%E6%83%B3%E7%A4%BE%E5%8C%BA%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%BE%AE%E4%BF%A1%E8%81%94%E7%B3%BB.md
+https://github.com/plugithedm/mzswht/blob/main/%E5%AE%89%E5%B1%85%E5%AE%A2%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/porch1prun/ofhgxg/commit/07e2b15bbf314f2fe97e2246dd50f2513103b176
+https://github.com/plugithedm/mzswht/blob/main/%E7%BE%8E%E5%9B%A2%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E7%BD%91%E5%9D%80.md
+https://github.com/waiter0bre/bmxpny/commit/0719299feb81aa53e9e8b28edd8534332378cc0b
+https://github.com/dolcilek/rjprwo/blob/main/%E6%8A%96%E9%9F%B3%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%BB%A3%E7%90%86%E5%BC%80%E6%88%B7%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/plugithedm/mzswht/blob/main/2026%E6%83%B3%E6%B3%95%2F%E7%AC%AC%E4%B8%80%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E8%81%94%E7%B3%BB%E6%96%B9%E5%BC%8F.md
+https://github.com/health1sph/gkutfr/commit/806a18d2eef78e5185aa75fb538b6437d642312b
+https://github.com/alto19jeff/raphza/blob/main/2026%E7%AC%AC%E4%B8%80%E4%B8%93%E6%A0%8F%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%8E%B0%E5%9C%BA%E9%AA%8C%E8%AF%81.md
+https://github.com/dolcilek/rjprwo/commit/cb78fa287f3d36e7cf13152fa891ce7a7885dd83
+https://github.com/porch1prun/ofhgxg/blob/main/%E7%99%BE%E5%BA%A6%E6%8E%A8%E8%8D%90%E4%B8%A8%E8%85%BE%E9%BE%99(Tamron)%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E4%BB%A3%E7%90%86%E7%BD%91%E5%9D%80.md
+https://github.com/alto19jeff/raphza/commit/81da15a863a7e00a282e835acddce04a35c04865
+https://github.com/brainturre/iwuoei/commit/e3db5734dd72bb1eeaac39c4fc46b20348c8c6bc
+https://github.com/dolcilek/rjprwo/commit/056258e526867120a90a985329b1450ff07abeba
+https://github.com/alto19jeff/raphza/commit/b170820257c3da488d9d8b296dc652fe5b19794c
+https://github.com/health1sph/gkutfr/commit/64ff5d93a8ec194f2feb742bbf8d521b6be56c4f
+https://github.com/capucajuha/fpusyq/commit/7c968e72bcb08b61ec7b1ebdbbac41d9676dce42
+https://github.com/capucajuha/fpusyq/blob/main/%E7%99%BE%E5%BA%A6%E6%90%9C%E7%B4%A2%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E6%B8%B8%E6%88%8F%E7%99%BB%E5%BD%95%E7%BD%91%E5%9D%80.md
+https://github.com/ratonking/vupowi/commit/749db91c68ea71dac47c896b6ff44d85d6a125f4
+https://github.com/gvrezjg8af46/ggadyg/blob/main/%E9%97%AE%E4%B8%80%E9%97%AE%E4%B8%A8%E8%85%BE%E9%BE%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E7%94%B5%E8%AF%9D.md
+https://github.com/plugithedm/mzswht/blob/main/%E7%BE%8E%E5%9B%A2%E4%B8%A8%E5%9C%A3%E6%B7%98%E6%B2%99%E5%A8%B1%E4%B9%90%E5%85%AC%E5%8F%B8%E5%AE%A2%E6%9C%8D%E7%BD%91%E5%9D%80.md
